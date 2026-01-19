@@ -1,4 +1,4 @@
-## Hi,there! It's Iidrish Khan! 👋
+## Hi,there! It's Idrish Khan! 👋
 
 ---
 
